@@ -1,1 +1,1 @@
-There is no information yet here ☹️
+There is no information here yet ☹️
